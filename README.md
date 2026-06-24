@@ -1,1 +1,0 @@
-# Metodología O.P.E.R.A.R.
